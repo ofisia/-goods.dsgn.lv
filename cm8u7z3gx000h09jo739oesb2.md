@@ -22,6 +22,6 @@ The poster was made for [Design It Yourself](http://diysub.com/) 2014 [talk](ht
 
 ---
 
-some random freebies • freely downloadable materials • unused project materials • Creative Commons derivatives • Creative Commons licensed • by [Jimmy Ofisia](https://dsgn.lv)
+some random freebies • freely downloadable materials • unused project materials • Creative Commons derivatives • Creative Commons licensed • by [Jim Ofisia](https://dsgn.lv)
 
 ### → [**Download** **Goods 05**](https://folder.dsgn.lv/b/goods05)
